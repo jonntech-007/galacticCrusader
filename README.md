@@ -8,6 +8,5 @@ Sy commit kar de
 
 mai nahi kar raaha
 
-dekh jaadu dikhata hu tujhe abhi
 
-haaan bhai dekh
+MOMTA
