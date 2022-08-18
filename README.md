@@ -10,3 +10,5 @@ mai nahi kar raaha
 
 
 MOMTA
+
+kya kr raha hai bhai
